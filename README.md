@@ -35,7 +35,7 @@ I'm currently expanding my knowledge in the following areas:
 
 ### 📫 Let's Connect
 
-* [LinkedIn](www.linkedin.com/in/v-n-nikhilesh-yadapaka)
-* [Email](nikhilesh9491@gmail.com)
+* www.linkedin.com/in/v-n-nikhilesh-yadapaka
+* nikhilesh9491@gmail.com
 
 Feel free to reach out if you have any questions or would like to connect!
